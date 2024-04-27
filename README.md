@@ -1,4 +1,6 @@
 ![image](https://raw.githubusercontent.com/A5H1Q/A5H1Q/main/D!N0.gif)
+
+💌: ashiksaleem20@gmail.com
 <!--
 **A5H1Q/A5H1Q** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
